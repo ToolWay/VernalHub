@@ -1,16 +1,5 @@
 # Vernal Hub
-Why we still here, just so suffer
- 
-Every night I can feel my leg, and my arm, even my fingers.
 
-The body i’ve lost.
+Still in development! 
+![standard (4)](https://user-images.githubusercontent.com/86362325/131356838-89f7b3df-e34f-4b18-bf1c-a94a5a786c56.gif)
 
-And the comrades have lost.
-
-Won’t stop hurting.
-
-It’s like they are still there.
-
-You feel it too don’t you?
-
-I’m gonna give ‘em comeback our past.
